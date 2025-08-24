@@ -1,4 +1,4 @@
-#Privacy Policy – Turing Notes
+# Privacy Policy – Turing Notes
 
 _Last updated: August 24, 2025_
 
